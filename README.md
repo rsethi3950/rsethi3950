@@ -5,7 +5,6 @@
 - 💞️ I’m looking to collaborate on the projects compatible with my skillset and also happy to add new skills to my bucket 😉.
 - 📃 [Resume](https://drive.google.com/drive/u/0/shared-with-me)
 - 📫 How to reach me : riyasethi941@gmail.com
-- 👩‍🎨 I can draw portraits.
 
 
 <!---
